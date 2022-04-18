@@ -9,3 +9,5 @@ Weapons images by CSGO Stash https://csgostash.com/
 TT with the AK https://www.esportmaniacos.com/
 
 CT logo with the CZ https://www.reddit.com/r/GlobalOffensive/comments/8dgfln/fixed_the_csgo_logo/
+
+Tab icon https://www.pinterest.es/pin/654429389592998051/
